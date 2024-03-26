@@ -5,7 +5,7 @@ Currently working on DevOps.
 
 * 🌍  I'm based in İstanbul
 * ✉️  You can contact me at [ceyda-cerenn@hotmail.com](mailto:ceyda-cerenn@hotmail.com)
-* ⚡  I love succulents hehe
+* 🌱  I love succulents hehe
 
 ### Skills
 
